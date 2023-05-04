@@ -2,7 +2,7 @@
 
 <br />
 
-I'm a Passionate Software Developer From Nigeria.
+***I'm a Passionate Software Developer From Nigeria✨.***
 
 **About me**
 
